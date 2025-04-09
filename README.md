@@ -1,4 +1,7 @@
-# abednego.github.io
+<div align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=800080&width=600&lines=✨+abednego.github.io+✨" alt="Typing SVG" />
+</div>
+
 First day, yeayy!!
 
 HEY GUYS!
