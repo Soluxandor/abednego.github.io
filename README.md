@@ -8,4 +8,4 @@ So Soluxandor mean Ruler of Sunlight (That's not soap brand LOL)
 I hope I can learning a lot thing in github, and I love to discuss about anything. So, opened up bro, may I can help you like you helped me, hehe :v
 
  
-: God Bless U All
+# God Bless U All
